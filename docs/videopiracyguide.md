@@ -236,6 +236,7 @@
 * [MyRM](https://myrunningman.com/) - My Running Man Episodes / [Discord](https://discord.gg/TpSgC6b)
 * [No-Laughing Batsu Game List](https://redd.it/2fgm9p)
 * [TW Classics](https://twcclassics.com/) - Weather Channel Replays
+* [Baddies East](https://baddieseast.com.co/) - [Telegram](https://t.me/baddies-eastcom)- Reality TV
 
 ***
 
